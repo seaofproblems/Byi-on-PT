@@ -8,4 +8,4 @@ If this triggered you don't attack me!!
  - I'm not going to avoid you just because you ships the ships that I don't like ;3, ofc if you respect me back. I will try my best to hold the converstations, and will try my best to end if we're in a fight... I hate fighting over stupid things that we both will live ><.
  - Please I don't wanna talk with anger issues people,.. I'm scared of angry people. Because I might say things that triggered you
  - One more thing that I'm 16, if you're under 13 then erm its alright? I won't say anything stupid, but best to just stay away from me. (except my sister Mizu! ><)
- - I don't hide/block people, I only hide/block them for few minutes when I feel uncomfortable.
+ - I don't hide/block people, I only hide/block them for few minutes when I feel uncomfortable. I would be really sad if people hid/blocked me :(

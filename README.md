@@ -8,6 +8,6 @@
 2. More notes (For everyone)
  - I'm a multishipper! I enjoy every single ship tbh.
  - Please I don't wanna talk with anger issues, sensitive or mental issues people,.. Because I might say things that triggered you, I just can't words my sentences correctly sometimes.
- - If you're under 13 then its alright? I won't say anything stupid, but best to just stay away from me.
+ - Never take what I say seriously, since I won't use tonetags for my jokingly and sarcastic speech or wtv it's called. The only tonetags I use most are "/srs" and "/genq"
  - I yap, rant a lot, please tell me if you don't like it (because I sometimes forget to check people's status before dm-ing I apologize).
  - Venting to me is never recommended, I do not know how to comfort people and can't handle negative energies.

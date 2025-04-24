@@ -6,7 +6,8 @@
  - Don't public chat to me (If we're not moots) . Because I would mostly offtab and your messages will be lost. So whisper to me! I will 100% respond to you (unless you're saying weird ass things), I respond fast, if I aren't then I might be a bit busy. 
  - I don't hide/block people freely, I only do it for few minutes when I feel uncomfortable. I would be really sad if people hid/blocked me without telling the reasons..
 2. More notes (For everyone)
- - I'm a multishipper! I enjoy every single ship tbh
+ - I'm a multishipper! I enjoy every single ship tbh.
  - Please I don't wanna talk with anger issues, sensitive or mental issues people,.. Because I might say things that triggered you, I just can't words my sentences correctly sometimes.
  - If you're under 13 then its alright? I won't say anything stupid, but best to just stay away from me.
+ - I yap, rant a lot, please tell me if you don't like it (because I sometimes forget to check people's status before dm-ing I apologize).
  - Venting to me is never recommended, I do not know how to comfort people and can't handle negative energies.

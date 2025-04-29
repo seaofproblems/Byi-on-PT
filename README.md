@@ -11,3 +11,4 @@
  - Never take what I say seriously, since I won't use tonetags for my jokingly and sarcastic speech or wtv it's called. The only tonetags I use most are "/srs" and "/genq"
  - I yap, rant a lot, please tell me if you don't like it (because I sometimes forget to check people's status before dm-ing I apologize).
  - Venting to me is never recommended, I do not know how to comfort people and can't handle negative energies.
+![image](https://github.com/user-attachments/assets/94acd486-10ac-4fdb-89bf-4f93cc490b17)

@@ -6,7 +6,7 @@
  - Don't public chat to me (If we're not moots) . Because I would mostly offtab and your messages will be lost. So whisper to me! I will 100% respond to you (unless you're saying weird ass things), I respond fast, if I aren't then I might be a bit busy. 
  - I don't hide/block people freely, I only do it for few minutes when I feel uncomfortable. I would be really sad if people hid/blocked me without telling the reasons..
 2. More notes (For everyone)
- - I'm a multishipper! I enjoy every single ship tbh. Just not Genshin Impact, gave me enough stress.
+ - I'm a multishipper! I enjoy every single ship tbh. Just not Genshin Impact, gave me enough stress. And about the toxic ships, I only like them for the angst, no I can't imagine them being happy together for once, I love angst man
  - Please I don't wanna talk with anger issues, sensitive or mental issues people,.. Because I might say things that triggered you, I just can't words my sentences correctly sometimes.
  - Never take what I say seriously, like, all I said was a joke and never serious for once, and I don't use tonetags much. The only tonetags I use most are "/srs" and "/genq", but you can spot the serious tone right.
  - I yap, rant a lot (If you don't receive my yapping msgs yes I'm afraid I might disturb you..), please tell me if you don't like it (because I sometimes forget to check people's status before dm-ing I apologize, If I accidentally made that mistake I swear I'd feel insanely guilty).

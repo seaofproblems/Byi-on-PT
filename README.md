@@ -2,6 +2,7 @@
 1. Int with me! (For Pony Town players)
  - I'm mostly at Roblox areas (There are 2 currently).
  - Please interact with me I'm always so lonely because most of my friends go offline or quitted. We can talk about something that is not about ships which I HATE talking about that, unless I'm getting more comfortable around you. Cuddling + hiding with me is super recommended (no need to ask first).
+ - Well, don't mind me if I just walk to you and c+h with you without saying anything : (
  - Roleplaying is okay, only with my friends as we're doing it as a jokes
  - Don't public chat to me (If we're not moots) . Because I would mostly offtab and your messages will be lost. So whisper to me! I will 100% respond to you (unless you're saying weird ass things), I respond fast, if I aren't then I might be a bit busy. 
  - I don't hide/block people freely, I only do it for few minutes when I feel uncomfortable. I would be really sad if people hid/blocked me without telling the reasons..

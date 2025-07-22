@@ -24,3 +24,8 @@ go my Deletedflex rarepair!!
 
 ![image](https://github.com/user-attachments/assets/109cb756-b57a-4f9d-8421-35d60cd513a9)
 
+im speechless
+
+<img width="397" height="162" alt="image" src="https://github.com/user-attachments/assets/b950c663-f52c-4083-a13a-6053aa0010d6" />
+
+

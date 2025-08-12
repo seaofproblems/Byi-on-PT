@@ -1,9 +1,9 @@
 # RBYI (my boundaries)
 Do note that English is not my first language and I often make mistake by typing so fast, I won't fix the grammar if it's still understandable.
 1. Int with me! (For Pony Town players)
- - I'm mostly at Roblox areas (There are 2 currently).
- - Be my friend be my friend be my friend. I'm always so open about making new friends!!! We can talk about something that is not about ships which I HATE talking about that, unless I'm getting more comfortable around you. Cuddling + hiding with me is super recommended (no need to ask first).
- - Well, don't mind me if I just walk to you and c+h with you without saying anything, I c + h freely!
+ - I'm mostly at Roblox areas. There are 2 currently BUT I will never go to the area at the top left corner from now on :). I'll only be there for my friends.
+ - Be my friend be my friend be my friend. I'm always so open about making new friends (esp we when match energy)!!! We can talk about something that is not about ships which I HATE talking about that, unless I'm getting more comfortable around you. Cuddling + hiding with me is super recommended (no need to ask first).
+ - Well, don't mind me if I just walk to you and c+h with you without saying anything, I c + h freely hahaa..!
  - Roleplaying is okay, only with my friends as we're doing it as a joke.
  - Don't public chat to me (If we're not green names). Because I would mostly offtab and your messages will be lost. So whisper to me! I will 100% respond to you (unless you're saying weird ass things), I respond fast, if I aren't then I might be a bit busy (will be stated through my name). 
  - I DON'T hide/block people freely, I only do it for few minutes when I feel uncomfortable. I would be really sad if people hid/blocked me without telling the reasons.. I want to be everyone's friend okay I don't wanna make anyone upset : J

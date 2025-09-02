@@ -10,7 +10,7 @@ Do note that English is not my first language and I often make mistake by typing
 2. More notes, for everyone
  - I'm a multishipper! I enjoy every single ship tbh. Just not Genshin Impact, gave me enough stress. And about the toxic ships, I only like them for the angst, no I can't imagine them being happy together for once, I love angst man
  - Please I don't wanna talk with anger issues, sensitive or mental issues people,.. Because I might say things that triggered you, I just can't words my sentences correctly sometimes.
- - Never take what I say seriously, like, all I said was a joke and never serious for once, and I don't use tonetags much. The only tonetags I use most are "/srs" and "/genq", but you can spot the serious tone right.
+ - Never take what I say seriously, like, all I said was a joke and never serious for once, and I don't use tonetags much. The only tonetags I use most are "/srs" and "/genq", but you can spot the serious tone right. Hey if you're not in the age I only interact, it's alright to talk to me, no weird topics that's all. (Huge age gap I'll consider ignoring)
  - I yap, rant a lot, on dms or on calls (If you don't have my yapping msgs daily yes I'm afraid I might disturb you..), please tell me if you don't like it (because I sometimes forget to check people's status before dm-ing I apologize, If I accidentally made that mistake I swear I'd feel insanely guilty).
  - I HATE getting ignored. If I did get ignored, I'd just stay silent and upset for the whole time. Or, if you talk to me in a dry tone, I'd leave you alone because I'm scared, a silent apology.
  - Venting to me is never recommended, I don't know how to comfort people and I can't handle negative energies. (Close friends can still do it, but I'd stay silent because I don't want to accidentally trigger you).
@@ -19,10 +19,6 @@ I'd be surprised if you actually read it all : P, now be my frienddd I'm super f
 
 ![image](https://github.com/user-attachments/assets/94acd486-10ac-4fdb-89bf-4f93cc490b17)
 ![image](https://github.com/user-attachments/assets/860b85a6-eecf-482b-8014-6b5feebc5bdd)
-
-go my Deletedflex rarepair!!
-
-![image](https://github.com/user-attachments/assets/109cb756-b57a-4f9d-8421-35d60cd513a9)
 
 im speechless
 
